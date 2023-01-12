@@ -1,1 +1,1 @@
-Work related to my thesis
+Work related to my thesis.
